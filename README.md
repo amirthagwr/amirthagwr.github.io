@@ -1,1 +1,0 @@
-# amirtha.github.io
